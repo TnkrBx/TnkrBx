@@ -1,5 +1,5 @@
 Hi, this is Hong and I'm the owner of YouTube channel named TinkerBox.
-This is my GitHub and I plan to keep and manage my projects that appears on the TinkerBox channel.
+In this place, I plan to keep and manage all my personal and YouTube projects.
 Thanks and have fun!
 
 <!---
