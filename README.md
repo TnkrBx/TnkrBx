@@ -1,4 +1,4 @@
-Hi, this is Hong and I'm the owner of YouTube channel named TinkerBox.
+Hi, this is Hong from S. Korea and I'm the owner of YouTube channel TinkerBox.
 In this place, I plan to keep and manage all my personal and YouTube projects.
 Thanks and have fun!
 
